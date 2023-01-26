@@ -1,1 +1,42 @@
+<h1 style="text-align: center;">&nbsp;➥<a href="https://www.tiktok.com/@bajueanita/video/7191744092093615386" rel="nofollow">CEK VIDEO TUTORIAL NYA</a></h1><div><br /></div><div><br /></div>
+<h1>Cara Mengatasi Hidung Tersumbat</h1>
+<h2>Daftar Isi</h2>
+<ol>
+  <li><a href="#intro">Pengantar</a></li>
+  <li><a href="#causes">Penyebab Hidung Tersumbat</a></li>
+  <li><a href="#homeremedies">Cara Mengatasi Hidung Tersumbat di Rumah</a>
+    <ul>
+      <li><a href="#steam">Menghirup Uap</a></li>
+      <li><a href="#saltwater">Menyeduh Air Garam</a></li>
+      <li><a href="#humidifier">Menggunakan Humidifier</a></li>
+    </ul>
+  </li>
+  <li><a href="#medicaltreatment">Perawatan Medis</a>
+    <ul>
+      <li><a href="#nasalspray">Menggunakan Nasal Spray</a></li>
+      <li><a href="#decongestant">Menggunakan Obat Pelega Hidung</a></li>
+    </ul>
+  </li>
+  <li><a href="#prevention">Prevensi</a></li>
+  <li><a href="#conclusion">Kesimpulan</a></li>
+</ol>
+<h2 id="intro">Pengantar</h2>
+Hidung tersumbat adalah kondisi yang sangat mengganggu dan dapat menyebabkan sakit kepala, sesak napas, dan kesulitan untuk bernapas melalui hidung. Dalam artikel ini, kami akan menjelaskan penyebab hidung tersumbat, cara mengatasinya di rumah, perawatan medis, dan cara mencegah terjadinya hidung tersumbat.
+<h2 id="causes">Penyebab Hidung Tersumbat</h2>
+Hidung tersumbat dapat disebabkan oleh berbagai hal, seperti infeksi virus, alergi, sinusitis, dan polusi udara. Beberapa orang juga dapat mengalami hidung tersumbat karena devkan selaput lendir yang tebal atau adanya tumor di hidung.
+
+<h2 id="homeremedies">Cara Mengatasi Hidung Tersumbat di Rumah</h2>
+Beberapa cara yang dapat dilakukan untuk mengatasi hidung tersumbat di rumah meliputi:
+<h3 id="steam">Menghirup Uap</h3>
+Menghirup uap dapat membantu melembutkan selaput lendir di hidung dan membuatnya lebih mudah untuk dikeluarkan. Anda dapat menghirup uap dengan cara menyeduh air panas, kemudian menutup kepala dengan handuk dan menghirup uap yang terhasil.
+<h3 id="saltwater">Menyeduh Air Garam</h3>
+Menyeduh air garam dapat membantu membersihkan hidung dan meredakan sakit dan gatal. Anda dapat menyeduh air garam dengan mencampur 1/4 sendok teh garam ke dalam 1 gelas air panas. Kemudian, gunakan solusi garam ini untuk menyiram hidung Anda dengan menggunakan cangkir atau kotak yang disediakan.
+<h3 id="humidifier">Menggunakan Humidifier</h3>
+Menggunakan humidifier dapat membantu melembabkan udara di ruangan Anda dan mencegah selaput lendir di hidung menjadi kering. Ini dapat membantu meredakan gejala hidung tersumbat dan membuat Anda merasa lebih nyaman.
+<h2 id="medicaltreatment">Perawatan Medis</h2>
+Beberapa perawatan medis yang dapat dilakukan untuk mengatasi hidung tersumbat meliputi:
+<h3 id="nasalspray">Menggunakan Nasal Spray</h3>
+Nasal spray dapat digunakan untuk membantu melegakan hidung tersumbat dengan melembutkan selaput lendir dan memperlancar aliran udara di hidung. Beberapa nasal spray yang tersedia di apotek dapat digunakan tanpa resep dokter.
+<h3 id="decongestant">Menggunakan Obat Pelega Hidung</h3>
+Obat pelega hidung dapat digunakan untuk meredakan gejala hidung tersumbat dengan mengurangi pembengkakan selaput lendir. Beberapa obat pelega hidung yang tersedia di apotek dapat digunakan tanpa resep dokter.
 # cara-mengatasi-hidung-tersumbat.github.io
